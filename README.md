@@ -1,5 +1,5 @@
 # SummerInternship2024_22IT080
-## 4th sem Summer Internship
+## 4th sem Summer Internship(Total 5 weeks)
 ### How I found my internship
 Firstly i didnt even make my resume and every other student in my class approved their internship from the sir.than after the finishing of my second last exam i made resume and apply to one company on linkedin but they didnt give answer so one of my friend told me that try the internship oin wordpress in know the one company so i send them an email and attached my resume with it and they approved my letter after i complete my last exam of 4th sem and guess what they sent me offer letter also on sunday and my internship will be starting from monday in online mode.
 #Starting of the internship
