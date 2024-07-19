@@ -60,6 +60,6 @@ sir reviewed our work for our final project that howmuch it built and that about
 day off
 ## Final day of my summer internship 2024
 ### Day 34 (17/6/2024)
-It was the last day of my summer internship meetinf was started in 2 PM and sir told me that name the group form the excel sheet i made he will evelute them sir eveluate everyones project.Sir gave us all certificates And finally gave 4 of us Letter of recommandation and 251 Rs for working good and punctually in this internship and than sir thanked us and we thanked sir and thats how we completed our internship.
+It was the last day of my summer internship meeting was started on 2 PM and sir told me that name the group form the excel sheet i made he will evelute them sir eveluate everyones project.Sir gave us all certificates And finally gave 4 of us Letter of recommandation and 251 Rs for working good and punctually in this internship and than sir thanked us and we thanked sir and thats how we completed our internship.
 
 
