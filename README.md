@@ -21,7 +21,7 @@ Sir checked our blogs and apprepiciated for our work and explored some themes in
 Sir asked question about some theme and told us that how to make websites and how to install wampp server in your desktop and thats the task for the day
 ### Day 10 (22/5/2024)
 Its was holiday because one the employee's engagment was there so every employee went there.
-### ay 11 (23/5/2024)
+### Day 11 (23/5/2024)
 Sir checked the work given to us and configured some error of student while installing wampp server and show how to make website and tought us how to install elementor pro without purchasing it.And gave task to implement it
 ### Day 12 (24/5/2024)
 Sir gave task to make one page website to every one.
